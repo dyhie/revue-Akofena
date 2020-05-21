@@ -1,2 +1,3 @@
 # revue-Akofena
 juste un dépôt
+Akofena symbolise le courage, la vaillance et l’héroïsme. En pays Akan, les épées croisées représentent les boucliers protecteurs du Roi. La revue interdisciplinaire Akofena des Lettres, Langues et Civilisations publie des articles inédits, à caractère scientifique. Ils auront été évalués en double aveugle par des membres du comité scientifique. Les langues de publication sont le français ou l’anglais. Enfin, Akofena est une revue au confluent des Sciences du Langage, des Lettres, Langues et de la Communication et s’adresse aux Chercheurs, Enseignants-Chercheurs et Étudiants.
